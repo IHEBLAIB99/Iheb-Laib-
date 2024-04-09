@@ -18,4 +18,4 @@ Lifelong Learner, Always Exploring New Technologies
 
 I'm excited to dive into the world of web development and contribute my unique blend of creativity, attention to detail, and a love for building exceptional user experiences.
 
-Let's connect and discuss how I can help you create your next web project! 🦾🦾🦾
+Let's connect and discuss how I can help you create your next web project! 🦾🦾
